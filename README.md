@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @srishtiagrawal
 - 👀 I’m interested in UI development and designing
 - 🌱 I’m currently learning ReactJs and Nodejs.
-- 💞️ I’m looking to collaborate in freelancing domain.
+- 💞️ I’m looking forward to collaborate in freelancing domain.
 - 📫 How to reach me- agrawalsrishti2@gmail.com
 
 <!---
