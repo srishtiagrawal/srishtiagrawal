@@ -14,7 +14,6 @@ Checkout my artwork here- https://www.instagram.com/colourful.crayons/
 
 📫 How to reach me ? - agrawalsrishti2@gmail.com
 
-https://www.linkedin.com/in/srishti-agrawal-1637ba110/
 
 
 <!---
